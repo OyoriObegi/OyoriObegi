@@ -10,6 +10,6 @@
 - 👯 I’m looking to collaborate on data science projects.
 - 🤔 I’m looking for help with finding paid projects on data analysis and machine learning.
 - 💬 Ask me about statistics, data analysis and machine learning.
-- 📫 How to reach me: oyoriobegi@gmail.com
+- 📫 How to reach me: oyoriobegi18@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love pan cakes 😄
